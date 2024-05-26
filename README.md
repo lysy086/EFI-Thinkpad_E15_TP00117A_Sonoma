@@ -1,0 +1,1 @@
+# EFI-Thinkpad_E15_TP00117A_Sonoma
